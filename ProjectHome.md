@@ -1,0 +1,1 @@
+PhotoLive is a social media tool and the first digital photo booth in the country that allows brands to gather relevant database and gain valuable presence in top social networking sites like Facebook, Twitter and target's email.
